@@ -1,2 +1,2 @@
 # ArtsakhStrong
-We will win!!
+We will win!! We have lost://
